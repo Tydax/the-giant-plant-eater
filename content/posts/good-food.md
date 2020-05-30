@@ -2,7 +2,7 @@
 date: 2020-05-30T18:27:37Z
 hero_image: "/content/images/caulfilower-buffalo-wings-15-of-17.jpg"
 title: good food
-author: Graham
+author: Naëll
 
 ---
 I made good food, and here is the recipe that goes with it.
