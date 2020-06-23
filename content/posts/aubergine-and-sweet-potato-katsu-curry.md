@@ -21,63 +21,40 @@ _Serves 2_
 
 **_Ingredients:_**
 
-_I medium onion, chopped_
-
-_I medium carrot, chopped_
-
-_½ aubergine sliced into rounds_
-
-_½ large sweet potato, peeled and sliced into rounds_
-
-_75g panko breadcrumbs_
-
-_I block of Japanese curry lix (refer to instructions of what you have)_
-
-_1 tbsp of plain flour_
-
-_5 tsp of plain seasoned flour_
-
-_2 tbsp of plant based milk_
-
-_Vegetable oil for frying_
-
-_I tbsp of oil for curry sauce_
-
-_350 ml of boiling water_
+* _I medium onion, chopped_
+* _I medium carrot, chopped_
+* _½ aubergine sliced into rounds_
+* _½ large sweet potato, peeled and sliced into rounds_
+* _75g panko breadcrumbs_
+* _I block of Japanese curry lix (refer to instructions of what you have)_
+* _1 tbsp of plain flour_
+* _5 tsp of plain seasoned flour_
+* _2 tbsp of plant based milk_
+* _Vegetable oil for frying_
+* _I tbsp of oil for curry sauce_
+* _350 ml of boiling water_
 
 **Method:**
 
-_Turn the oven on to 160 degrees_
+ 1. _Turn the oven on to 160 degrees_
+ 2. _Prepare your vegetables and heat 1 tbsp of oil in a pan on a medium heat_
+ 3. _Add the onions and gently fry them. Mix together the curry block with boiling water in a jug._
 
-_Prepare your vegetables and heat 1 tbsp of oil in a pan on a medium heat_
+    ![](/content/images/curry-sauce.jpg)
+ 4. _Next place three containers together with the seasoned flour in the first, then the plant-based milk in the next and panko breadcrumbs in the other._
+ 5. _Meanwhile in a shallow frying pan, add a generous amount of vegetable oil. Turn the heat up and get ready to shallow fry the vegetables._
+ 6. _In the other pan, the onions should be softened, add the chopped carrots, then the curry sauce mix. Bring up the heat, then turn down to simmer._
+ 7. _Now it is the turn of coating the veg and frying them. Start with the sweet potatoes. Place them in the seasoned flour, then milk and finally panko breadcrumbs. Use your hands push the panko breadcrumbs on._
 
-_Add the onions and gently fry them. Mix together the curry block with boiling water in a jug._
+    ![](/content/images/dipping-veg.jpg)
+ 8. _Place them in the hot oil and, frying them on both sides until golden brown. Take the sweet potatoes and place them on a baking tray and pop in the oven._
 
-![](/content/images/curry-sauce.jpg)
-
-_Next place three containers together with the seasoned flour in the first, then the plant-based milk in the next and panko breadcrumbs in the other._
-
-_Meanwhile in a shallow frying pan, add a generous amount of vegetable oil. Turn the heat up and get ready to shallow fry the vegetables._
-
-_In the other pan, the onions should be softened, add the chopped carrots, then the curry sauce mix. Bring up the heat, then turn down to simmer._
-
-_Now it is the turn of coating the veg and frying them. Start with the sweet potatoes. Place them in the seasoned flour, then milk and finally panko breadcrumbs. Use your hands push the panko breadcrumbs on._
-
-![](/content/images/dipping-veg.jpg)
-
-_Place them in the hot oil and, frying them on both sides until golden brown. Take the sweet potatoes and place them on a baking tray and pop in the oven._
-
-![](/content/images/sweet-tattie.jpg)
-
-_Repeat the process with the aubergine. You may have to add more oil to help with the frying._
-
-![](/content/images/aubergine-and-sweet-potato-katsu-curry-docx.jpg)
-
-_With the veggies in the oven and the curry sauce simmering, prepare your rice according instructions. This should take about 20 minutes._
-
-_I like to make a simple Asian inspired salad using grated carrots and shredded lettuce, soy, rice vinegar, sesame seed oil._
-
-_When the rice is cooked assemble. I use small bowls of create moulds for the rice. Next to the rice place the veggies and the salad. Gentle pour over the curry sauce and serve._
+    ![](/content/images/sweet-tattie.jpg)
+ 9. _Repeat the process with the aubergine. You may have to add more oil to help with the frying._
+10. ![](/content/images/aubergine-and-sweet-potato-katsu-curry-docx.jpg)
+11. _With the veggies in the oven and the curry sauce simmering, prepare your rice according instructions. This should take about 20 minutes._
+12. _I like to make a simple Asian inspired salad using grated carrots and shredded lettuce, soy, rice vinegar, sesame seed oil._
+13. _When the rice is cooked assemble. I use small bowls of create moulds for the rice. Next to the rice place the veggies and the salad. Gentle pour over the curry sauce and serve._
 
 **_Variations of the Curry_**
 
