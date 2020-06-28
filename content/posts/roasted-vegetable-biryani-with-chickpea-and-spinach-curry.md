@@ -55,6 +55,8 @@ _Salt and pepper to taste_
 
 ![](/content/images/img_20200608_185345.jpg)
 
+**_Method_**
+
 _1.Preheat your oven to 220 degrees / gas mark 7 and prepare your vegetables._
 
 _2.Place the chopped vegetables, apart from the green beans into a large rectangular dish with the oil, cumin powder, garlic powder. Stir the vegetable with the oil and spices then season well. Roast the vegetables in the oven for about 20 minutes._
@@ -113,7 +115,7 @@ _½ turmeric_
 
 _2 tsp of curry powder_
 
-_Method:_
+**_Method:_**
 
 _1.Gently fry the chopped onion, add in the garlic and spices, Stir for a few minutes._
 
