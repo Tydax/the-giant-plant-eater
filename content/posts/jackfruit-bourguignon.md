@@ -5,7 +5,7 @@ title: Jackfruit Bourguignon
 author: Graham
 
 ---
-**_Jackfruit Bourguignon_**
+    Jackfruit Bourguignon
 
 _I grew up in a household where comforting stews and casseroles were often served. I still love these dishes and now create them with a plant-based twist.  Jackfruit is a great ingredient to take on flavours and provide texture in slow cooked stews. The following recipe is a take on a French classic. Bonne appetite!_
 
