@@ -7,7 +7,7 @@ author: Graham
 ---
 **_Lentil and Cashew Nut Roast_**
 
-_I once had a meatless roast in a Brewer’s Fayre, attached to a Premier Inn. I was excited about a filled Yorkshire pudding with veggies and gravy. However, when it arrived, it was missing the roast. I enquired and found out the veggie version was achieved by not adding the meat. To be fair, the trimmings are part of the experience and sometimes the best bit._
+_I once had a meatless roast in a Brewer’s Fayre, attached to a Premier Inn. I was excited about a filled Yorkshire pudding with veggies and gravy. However, when it arrived, it was missing the roast. I enquired and found out the veggie version was achieved by not adding the meat. To be fair, the trimmings are part of the experience and sometimes the best part._
 
 _This nut roast would have been a good addition to the trimmings. It is an excellent Sunday supplement for the roast of the day and works well for a celebration dinner. I would be happy with this on my plate on Christmas day._
 
@@ -75,7 +75,7 @@ _7. Add the cashews, nutmeg and onion powder to the frying pan mixture and once 
 
 _8. Prepare a sandwich tin with non-stick parchment paper and put the mixture into the tin. Give the tin a good shake to get it into all the corners._
 
-_9. Place on the middle shelf of the oven for about 25- 30 minutes. When ready take out the roast and leave on a cooling rack for 5- 10 minutes. I often leave the roast in the parchment paper._ 
+_9. Place on the middle shelf of the oven for about 25- 30 minutes. When ready take out the roast and leave on a cooling rack for 5- 10 minutes. I often leave the roast in the parchment paper._
 
 ![](/content/images/roast-tin.jpg)
 
@@ -91,4 +91,4 @@ _I like to serve the roast with some green veg, mini roasted potatoes and onion 
 
 **_Versatile Mix_**
 
-_The lentil and cashew mix can be used for the filling plant-based sausage rolls or formed into patties for burgers. You can bake the dish in ready formed slices in the oven and it should freeze easily. It is easy to change the dish with the types of nuts you use and play about with the spice mix. I like to add fresh sage to the roast or some dried herbs._ 
+_The lentil and cashew mix can be used for the filling plant-based sausage rolls or formed into patties for burgers. You can bake the dish in ready formed slices in the oven and it should freeze easily. It is easy to change the dish with the types of nuts you use and play about with the spice mix. I like to add fresh sage to the roast or some dried herbs._
