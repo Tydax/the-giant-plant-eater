@@ -7,7 +7,7 @@ author: Graham
 ---
 **Chilli Can Can or Tin Tin Chilli**
 
-Our store cupboard ingredients can make a great meal and I find this simply chilli a great mid-week dish. The left-over chilli forms a great base for vegan nachos or added to a classic baked potato. For the base of the base a can of green lentils takes centre stage. It adds bite and texture to the dish. I also find dried green lentils are quick to cook in his dish.
+Store cupboard ingredients can make a great meal and I find this simply chilli a comforting mid-week dish. The left-over chilli forms a great base for vegan nachos or added to a classic baked potato. For the base of the base a can of green lentils takes centre stage. It adds bite and texture to the dish. I also find dried green lentils are quick to cook in his dish.
 
 Preparation: 10 minutes
 
@@ -35,9 +35,9 @@ I small piece of celery diced
 
 2 cloves of garlic
 
-I table spoons of oil
+I tbsp of oil
 
-I table spoons of tomato puree
+I tbsp of tomato puree
 
 1 – 2 tsp of chilli powder
 
