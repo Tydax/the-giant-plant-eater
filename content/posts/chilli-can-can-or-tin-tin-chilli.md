@@ -43,7 +43,7 @@ I tbsp of tomato puree
 
 Salt and pepper to season
 
-![](/content/images/img_20200608_185345.jpg)
+![](/content/images/chili-ingred.jpg)
 
 **Method:**
 
