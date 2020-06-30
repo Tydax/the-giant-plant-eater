@@ -75,7 +75,7 @@ _7. After simmering, add in the sautéed mushrooms and cook for a further 5-10 m
 
 **_Plating up the dish_**
 
-_This is a good dish to share with the pot on the table for people to dig it. It works well with mashed potatoes or pasta. I made this dish during lockdown and used up some new potatoes._
+_This is a good dish to share with the pot on the table for people to dig in. It works well with mashed potatoes or pasta. I made this dish during lockdown and used up some new potatoes to accompany the warming stew._
 
 ![](/content/images/jack-pasta.jpg)
 
