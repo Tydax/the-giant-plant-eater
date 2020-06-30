@@ -26,7 +26,7 @@ _Serves 2_
 * _½ aubergine sliced into rounds_
 * _½ large sweet potato, peeled and sliced into rounds_
 * _75g panko breadcrumbs_
-* _I block of Japanese curry lix (refer to instructions of what you have)_
+* _I block of Japanese curry lix (refer to your instructions)_
 * _1 tbsp of plain flour_
 * _5 tsp of plain seasoned flour_
 * _2 tbsp of plant based milk_
