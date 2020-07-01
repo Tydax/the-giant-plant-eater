@@ -5,8 +5,6 @@ title: 'Aubergine and Sweet Potato Katsu Curry '
 author: Graham
 
 ---
-> **Aubergine and Sweet Potato Katsu Curry**
-
 _I first had a version of this dish around 20 years ago in Japanese restaurant, Ichiban, in Glasgow. There is something comforting about that combination of sweet curry sauce and fried veg. It doesn’t feel too far removed from my guilty pleasure food of chips ‘n’ curry sauce. For this dish I have used a Japanese curry mix. The mix is easy to obtain from Asian supermarkets, but you can find equivalents in most supermarkets._
 
 ![](/content/images/thumbnail_img_20200615_200904.jpg)
