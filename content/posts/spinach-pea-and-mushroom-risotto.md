@@ -5,8 +5,6 @@ title: 'Spinach, Pea and Mushroom Risotto '
 author: Graham
 
 ---
-> **_Spinach, Pea and Mushroom Risotto_**
-
 _Risotto often features in our house during the week. It is easily flavoured in a variety of ways and lends itself to using what you find in the fridge. It does require a little love as you pour over the stock in small quantities and stir gently. But the love and attention are worth it._
 
 _In a traditional risotto you would have a hard cheese like parmesan, but you easily substitute this with nutritional yeast and some parm (a blend of cashew nuts and nutritional yeast). I haven’t added any white wine to this dish and use lemon juice to add some sharpness._
@@ -26,10 +24,10 @@ _Serves 2-3_
 * _150 g of sliced chestnut mushrooms_
 * _100 g of baby spinach_
 * _80 g of frozen peas_
-* _3 tbsp of parm or 2 tbsp of nutritional yeast_ 
+* _3 tbsp of parm or 2 tbsp of nutritional yeast_
 * _I large onion or 2 shallots, chopped finely_
 * _2 cloves of garlic_
-*  _Juice of 1/2 lemon_ 
+* _Juice of 1/2 lemon_
 * _Vegan margarine_
 * _Salt and pepper to taste_
 
@@ -59,7 +57,7 @@ _5. Stir in 1 tbsp of vegan margarine, add in the parm, lemon juice and season w
 
 **_Variety Dish_**
 
-_It is easy to change this dish and use the ingredients in your house for inspiration. You can change the flavour base using a mix of fresh and chopped tinned tomatoes. Risotto works well as a starter and if you have some left overs you can create a version of arancini. You can buy vegan 'Parmesan' cheese in blocks or grated to use to flavour the dish._ 
+_It is easy to change this dish and use the ingredients in your house for inspiration. You can change the flavour base using a mix of fresh and chopped tinned tomatoes. Risotto works well as a starter and if you have some left overs you can create a version of arancini. You can buy vegan 'Parmesan' cheese in blocks or grated to use to flavour the dish._
 
 **_Vegan Parmesan_**
 
