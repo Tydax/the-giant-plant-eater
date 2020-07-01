@@ -5,8 +5,6 @@ title: Lentil and Cashew Nut Roast
 author: Graham
 
 ---
-**_Lentil and Cashew Nut Roast_**
-
 _I once had a meatless roast in a Brewer’s Fayre, attached to a Premier Inn. I was excited about a filled Yorkshire pudding with veggies and gravy. However, when it arrived, it was missing the roast. I enquired and found out the veggie version was achieved by not adding the meat. To be fair, the trimmings are part of the experience and sometimes the best part._
 
 _This nut roast would have been a good addition to the trimmings. It is an excellent Sunday supplement for the roast of the day and works well for a celebration dinner. I would be happy with this on my plate on Christmas day._
