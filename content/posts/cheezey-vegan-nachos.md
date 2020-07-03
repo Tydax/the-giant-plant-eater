@@ -15,7 +15,7 @@ author: Graham
 
 ![](/content/images/img_20200606_210041_427.jpg)
 
-_Nachos are a pub classic and great for sharing when out having drinks with friends or family. I like to make this at home when I have left over chilli. For this recipe I use a plant-based cheeze sauce which brings the different elements together._
+_Nachos are a pub classic and are great for sharing when out having drinks with friends or family. I like to make this at home when I have left over chilli. For this recipe I use a plant-based cheeze sauce which brings the different elements together._
 
 _Assembling and cooking the nachos under the grill does not take long. You will spend your time creating the cheeze sauce, salsa, refried beans and guacamole._
 
