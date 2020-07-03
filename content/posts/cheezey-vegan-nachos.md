@@ -111,7 +111,7 @@ _When making a salsa take your tomatoes out of the fridge and allow to get to ro
 
 **_Ingredients:_**
 
-_60g of cherry/ baby plum tomatoes, chopped into small part_
+_60g of cherry/ baby plum tomatoes, chopped into small parts_
 
 _Juice of half a lime_
 
