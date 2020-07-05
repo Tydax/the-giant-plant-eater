@@ -51,7 +51,7 @@ _Salt and pepper to season_
 
 **_Method_**
 
-_1. Pre-heat the oven on to 100 degrees c or gas mark 1._
+_1. Pre-heat the oven on to 100 degrees c or gas mark 1. When you have toasted the cashew nuts, turn it up to 180 degrees or gas mark 6._ 
 
 _2. Heat 1 tbsp of oil in a pan, add chopped onion and 1 garlic glove. Gently fry until the onions are softened._
 
@@ -65,7 +65,7 @@ _5. Meanwhile in a frying pan, heat 1 tbsp of oil and add in the garlic. Cooking
 
 ![](/content/images/fry-roast.jpg)
 
-_6. Take the cashews out and once they are cool enough, place them in a food bag and bash them into pieces with a rolling pin or wooden spoon. Turn to oven up to about 220 degrees c or gas mark 7._
+_6. Take the cashews out and once they are cool enough, place them in a food bag and bash them into pieces with a rolling pin or wooden spoon. Turn to oven up to about 180 degrees c or gas mark 6._
 
 _7. Add the cashews, nutmeg and onion powder to the frying pan mixture and once mixed in add the lentil mixture. Check your mixture for seasoning and leave to the side._
 
