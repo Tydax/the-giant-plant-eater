@@ -1,7 +1,7 @@
 ---
 date: 2020-07-09T17:48:43Z
 hero_image: "/content/images/img_20200708_194443_731.jpg"
-title: 'Jackfruit Stew and Herby Dumplings '
+title: 'Jackfruit Stew with Herby Dumplings '
 author: Graham
 
 ---
