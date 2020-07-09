@@ -5,7 +5,7 @@ title: 'Jackfruit Stew with Herby Dumplings '
 author: Graham
 
 ---
-_This dish can be enjoyed all year round and can be easily adapted to season. As a child, I loved a classic stew and dumplings. My mum would sometimes put raisins inside her mix. Traditionally dumplings would involve suet, but I have used a veggie suet replacement. You can make dumplings with margarine instead of the suet replacement._
+_This dish can be enjoyed all year round and is easily adapted to the season. As a child, I loved a classic stew and dumplings. My mum would sometimes put raisins inside her mix. Traditionally dumplings would involve suet, but I have used a veggie suet replacement. You can make dumplings with margarine instead of the suet replacement._
 
 ![](/content/images/img_20200708_193844.jpg)
 
