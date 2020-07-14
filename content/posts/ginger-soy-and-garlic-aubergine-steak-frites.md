@@ -5,7 +5,7 @@ title: Ginger, Soy and Garlic Aubergine Steak Frites
 author: Graham
 
 ---
-_Aubergine has a wonderful texture which works well with marinating and roasting. In this dish, it takes centre stage in a twist on a classic ‘steak frites’. If you have time, let the aubergine marinated over-night or for a few hours. I have changed the classic shoestring fries for garlic wedges and used the left-over marinade to dress the salad._
+_Aubergine has a wonderful texture which works well when marinating and roasting. In this dish, it takes centre stage in a twist on the classic ‘steak frites’. If you have time, let the aubergine marinated over-night or you can leave it for a few hours. I have changed the classic shoestring fries for garlic wedges and used the left-over marinade to dress the salad._
 
 ![](/content/images/img_20200714_203810_509.jpg)
 
@@ -43,7 +43,7 @@ _Salt and pepper to season_
 
 **_Method:_**
 
-_Place our ingredients for the marinade into a bowl and combine. Spread the aubergine slices with the marinate and lay them into a rectangular dish._
+_Place our ingredients for the marinade into a bowl or jug and combine. Spread the aubergine slices with the marinate and lay them into a rectangular dish._
 
 _Cover the dish and leave in the fridge for 30 minutes or over-night. I left the dish in the fridge for about 6 hours._
 
