@@ -31,7 +31,7 @@ _2 cloves of garlic_
 
 _Small piece of ginger, grated_
 
-_½ sesame oil_
+_½ tsp of sesame oil_
 
 _½ chopped chilli, seeds removed_
 
