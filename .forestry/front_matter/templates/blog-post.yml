@@ -36,6 +36,7 @@ fields:
   description: Enter hero image for blog post here
   default: "/content/images/sarah-dorweiler-9Z1KRIfpBTM-unsplash.jpg"
 pages:
+- content/posts/arrabiata-linguini-with-roasted-veg.md
 - content/posts/aubergine-and-sweet-potato-katsu-curry.md
 - content/posts/cheezey-vegan-nachos.md
 - content/posts/chilli-can-can-or-tin-tin-chilli.md
