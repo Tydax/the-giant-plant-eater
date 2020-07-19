@@ -57,7 +57,7 @@ _After a few minutes put in the chopped tomatoes, stock, chilli powder and herbs
 
 ![](/content/images/img_20200719_190055.jpg)
 
-_When the veg are ready add them to the sauce and keep warm on a low heat. Cook your linguine or pasta of choice and add into the dish._
+_When the veg are ready add them to the sauce and keep warm on a low heat. Cook your linguine or pasta of choice and add into the dish. Around 70- 80g of pasta per person._ 
 
 ![](/content/images/img_20200719_193047.jpg)
 
