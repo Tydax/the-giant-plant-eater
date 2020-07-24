@@ -7,7 +7,7 @@ author: Graham
 ---
 _This is super easy and quick to make. It is great for a brunch dish or adding to a stir-fried rice dish. You need a few ingredients and frying pan and you can quickly pull things together._
 
-_Serves: 1-2_ 
+_Serves: 1-2_
 
 _Preparation: 5 mins_
 
@@ -36,8 +36,6 @@ _Salt and pepper to season_
 _Place your tofu between 2 plates and put some weights on top. I often use a tin from the cupboard. This will help to remove excess water._
 
 _Meanwhile heat some oil in a frying pan and gentle fry the onion. When the onion is softened add in the spices and crumbled the block of tofu by hand into the pan._
-
-![](/content/images/img_20200723_182617.jpg)
 
 _Stir together and fry for a few minutes before adding salt and pepper._
 
