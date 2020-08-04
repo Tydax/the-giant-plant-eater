@@ -67,6 +67,8 @@ _Veggie Breakfast Pack or Veggie Black Pudding from Simon Howie_
 
 _The above products are suitable for vegans and fit well into a classic full Scottish. The breakfast pack consists of a veggie link sausage, veggie square sausage and veggie black pudding. I have tried out the pack with my partner. It works well for a hearty breakfast. The Real Lancashire Black Pudding Company also make a vegan black pudding, or you might want to try the V-Pud._
 
+![](/content/images/img_20200425_130209_757.jpg)
+
 _Spinach_
 
 _I love some wilted spinach as part of a breakfast. I like to cook it with plenty of garlic and season it well._
@@ -75,16 +77,18 @@ _Potatoes_
 
 _If you have some left-over potatoes, you can easily fry them up with the breakfast or you could add in some hash browns. If you are feeling adventurous, then a potato waffle is an excellent addition to a breakfast._
 
-Avacado 
+Avacado
 
-You can add some slices of avacado or mash an avacado with some lime, salt and chilli flakes as a side dish. 
+You can add some slices of avacado or mash an avacado with some lime, salt and chilli flakes as a side dish.
 
 _Breakfast Rolls_
 
 _This takes elements of the breakfast and serves them up in a soft morning bread roll. Some veggie sausages or ‘facon’ would work well in a roll but you can add in elements from tattie scones to mushrooms. The traditional sauces would be ketchup or brown sauce._
 
-Heading Out 
+![](/content/images/img_20200501_141556_257.jpg)
 
-I love to make brunch but also love heading out. The vegan breakfast or brunch is appearing more. The picture below is from the Canvas Cafe, Brick Lane, London. 
+Heading Out
+
+I love to make brunch but also love heading out. The vegan breakfast or brunch is appearing more. The picture below is from the Canvas Cafe, Brick Lane, London.
 
 ![](/content/images/fb_img_1596541721742.jpg)
