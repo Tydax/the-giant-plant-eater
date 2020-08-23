@@ -5,7 +5,7 @@ title: 'Griddle Scones '
 author: Graham
 
 ---
-_My mum would often make these scones, and we would enjoy them for breakfast fresh from the griddle. I have adapted the recipe for a plan- based diet. It is an easy adapt using vegan margarine and plant-based milk. I often use Flora buttery for baking but there are plenty of margarines out there to choose from._
+_My mum would often make these scones, and we would enjoy them for breakfast fresh from the griddle. I have adapted the recipe for a plant- based diet. It is an easy adapt using vegan margarine and plant-based milk. I often use Flora buttery for baking but there are plenty of margarines out there to choose from._
 
 ![](/content/images/img_20200730_121648.jpg)
 
