@@ -11,6 +11,8 @@ _Preparation: 10 - 15 mins_
 
 _Cooking: 15 – 30 mins_
 
+Serves 2- 4 as part of a breakfast, brunch or in a pasta dish. 
+
 **_Ingredients for the marinade_**
 
 _2 tbsp of oil_
