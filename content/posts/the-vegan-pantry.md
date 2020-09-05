@@ -5,8 +5,6 @@ title: 'The Vegan Pantry '
 author: Graham
 
 ---
-_Store Cupboard, Fridge and Freezer Handy Supplies_
-
 _To help in the journey of plant-based cooking, it is good to have a few handy supplies. The list below gives some guidance on what can be helpful. You might choose products which are seasonal, organic or ethically produced._
 
 **_Tinned Products and Cartons_**
