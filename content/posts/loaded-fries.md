@@ -5,7 +5,7 @@ title: 'Loaded Fries '
 author: Graham
 
 ---
-_On my travels with my partner, we like search for vegan venues and love stumbling across street food. There is a great variety on offer including burgers, plant-based kebabs, burritos, cauliflower wings and loaded fries. The recipe below is a street food style version of loaded fries with a healthier twist. The chipotle fries are loaded with guacamole, fresh salsa, and coriander mayo. You can easily change the seasoning according to what you have at hand. I have to thank my partner for the recipe._ 
+_On my travels with my partner, we like search for vegan venues and love stumbling across street food. There is a great variety on offer including burgers, plant-based kebabs, burritos, cauliflower wings and loaded fries. The recipe below is a street food style version of loaded fries with a healthier twist. The chipotle fries are loaded with guacamole, fresh salsa, and coriander mayo. You can easily change the seasoning according to what you have at hand. I have to thank my partner for the recipe._
 
 ![](/content/images/img_20200829_213321.jpg)
 
@@ -55,15 +55,15 @@ _Generous helping of salt_
 
 **_Tomato Salsa_**
 
-_100g of cherry tomatoes, chopped finley_ 
+_100g of cherry tomatoes, chopped finley_
 
-_1/4 red onion, chopped finley_ 
+_1/4 red onion, chopped finley_
 
-_Juice from 1/2 lime_ 
+_Juice from 1/2 lime_
 
 _Salt and pepper_
 
-_Fresh coriander -  small handful, chopped_ 
+_Fresh coriander -  small handful, chopped_
 
 **_Coriander Vegan Mayo_**
 
