@@ -5,7 +5,7 @@ title: 'Vegan Sausage Rolls '
 author: Graham
 
 ---
-_I have made these rolls for a journey to France by train. I often make them for a party or wee gathering. They are great warm from the oven or cold next day. They will last a few days in a sealed container without refrigerated and you can easily freeze them._
+_I have made these rolls for a journey to France by train. I often make them for a party or wee gathering. They are great warm from the oven or cold next day. They will last a few days in a sealed container without being refrigerated or you can easily freeze them._
 
 _I use ready rolled puff pastry from the supermarket. It just happens to be vegan and perfect for several uses._
 
