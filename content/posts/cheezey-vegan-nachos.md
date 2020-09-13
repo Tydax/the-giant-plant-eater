@@ -9,6 +9,8 @@ _Nachos are a pub classic and are great for sharing when out having drinks with 
 
 _Assembling and cooking the nachos under the grill does not take long. You will spend your time creating the cheeze sauce, salsa, refried beans and guacamole._
 
+![](/content/images/img_20200606_210041_427.jpg)
+
 _Serves 4-6_
 
 _Preparation: 30 mins_
