@@ -83,6 +83,16 @@ _Dry off the fries before adding oil and seasoning_
 
 _Place in the hot oven for around 25 – 30 mins. Turning them during the cooking and cook for another 20 minutes or until they are nice and golden._
 
+**_Preparing the Toppings _**
+
+_For the tomato salsa combine the ingredients into a bowl. It can be left to the side as the fries cook in the oven._ 
+
+_For the mayo, combine the ingredients with a hand blender and leave in the fridge until ready to use._ 
+
+_To make the gaucamole, mash the avacado with a fork and add in the ingredients. You can check for seasoning by adding a little more salt or chilli flakes if required._ 
+
+**_Assembling the Dish_**
+
 _Place the fries first and top with salsa and guacamole. Finally drizzle the mayo on top. The fries make a great side dish for burgers or wraps._
 
 **_Variations_**
