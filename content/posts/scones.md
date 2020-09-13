@@ -47,4 +47,4 @@ _Place them on a rack to cook when ready. They can be served warm or left to coo
 
 **_Variations_**
 
-_You can change the scones by adding in some dried fruit such as raisins or chopped dried apricots. The type of plant-based milk you use will change the flavour. These scones work well with almond or hazelnut milk._
+_You can change the scones by adding in some dried fruit such as raisins or chopped dried apricots. The type of plant-based milk you use will change the flavour. These scones work well uisng almond or hazelnut milk._
