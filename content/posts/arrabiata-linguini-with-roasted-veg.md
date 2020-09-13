@@ -5,7 +5,7 @@ title: Arrabiata Linguini with Roasted Veg
 author: Graham
 
 ---
-_It is easy to pull together a quick tomato-based pasta sauce and it lends itself to the addition of different ingredients. For this dish I have roasted some vegetables to add to the sauce. They add sweetness to the sauce and bring a depth of flavour. The sauce will keep for a few days in the fridge and would easily freeze. You can use different types of pasta here and I am often influenced by what is in the store cupboard._
+_I enjoy creating a quick tomato-based pasta sauce. It lends itself to the addition of different ingredients. For this dish I have roasted some vegetables to add to the sauce. They add sweetness to the sauce and bring a depth of flavour. The sauce will keep for a few days in the fridge and would easily freeze. You can use different types of pasta here and I am often influenced by what is in the store cupboard._
 
 ![](/content/images/img_20200719_204325.jpg)
 
@@ -57,7 +57,7 @@ _After a few minutes put in the chopped tomatoes, stock, chilli powder and herbs
 
 ![](/content/images/img_20200719_190055.jpg)
 
-_When the veg are ready add them to the sauce and keep warm on a low heat. Cook your linguine or pasta of choice and add into the dish. Around 70- 80g of pasta per person._ 
+_When the veg are ready add them to the sauce and keep warm on a low heat. Cook your linguine or pasta of choice and add into the dish. Around 70- 80g of pasta per person._
 
 ![](/content/images/img_20200719_193047.jpg)
 
