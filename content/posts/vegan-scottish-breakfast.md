@@ -53,7 +53,7 @@ _It is possible to buy this in slices, but you can use part of a complete haggis
 
 _Scrambled Tofu_
 
-_In a breakfast you would traditionally get a fried egg and maybe a poached egg. For your big plate, a side serving of scrambled tofu is great. I have a recipe in my blog._
+_In a breakfast you would traditionally get a fried egg and maybe a poached egg. For your big plate, a side serving of scrambled tofu is great. Check out the recipe for scrambled tofu in my blog._ 
 
 _Sauce_
 
