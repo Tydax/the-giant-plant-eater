@@ -5,7 +5,7 @@ title: Easy Olive Bread
 author: Graham
 
 ---
-_I have found this recipe handy for making a quick loaf during lockdown. I make it in the morning as I go about other tasks. I have been lucky to get hold of some fresh yeast from my local Portuguese baker and had a packet of quick acting yeast._
+_I have found this recipe handy for making a quick loaf during lockdown. I would make it in the morning as I go about other tasks. I have been lucky to get hold of some fresh yeast from my local Portuguese baker and had some quick acting yeast in the cupboard._ 
 
 _Preparation: 10 – 15 minutes_
 
