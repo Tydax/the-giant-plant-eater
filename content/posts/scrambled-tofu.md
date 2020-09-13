@@ -5,7 +5,7 @@ title: Scrambled Tofu
 author: Graham
 
 ---
-_This is super easy and quick to make. It is great for a brunch dish or adding to a stir-fried rice dish. You need a few ingredients and frying pan and you can quickly pull things together._
+_This is super easy and quick to make. It is great for a brunch dish or adding to a stir-fried rice dish. You just need a few ingredients and frying pan and you can quickly pull things together._
 
 _Serves: 1-2_
 
