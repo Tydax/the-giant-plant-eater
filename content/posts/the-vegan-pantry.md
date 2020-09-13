@@ -97,11 +97,13 @@ _Light and dark soy sauce are fantastic for adding flavour and colour to a dish.
 
 _Liquid smoke helps to give a smoky flavour and is great in a marinade._
 
+Gravy browning works well when adding colour to a dish.
+
 _A stock of BBQ, Ketchup, Sriracha, Hot Sauce and Siracha Mayo._
 
 _Vegan Mayo, it is easy to make your own, but a jar is handy._
 
-_Marmite or Vegemite, which can be used to add depth to a dish in small quantities. I realise that people either love or hate it_
+_Marmite or Vegemite, which can be used to add depth to a dish in small quantities. I realise that people either love or hate it._
 
 **_Vegan Stock_**
 
