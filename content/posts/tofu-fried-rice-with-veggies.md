@@ -47,7 +47,7 @@ _Prepare your rice by rinsing first and then placing in a pan with 150 ml of boi
 
 _Whilst the rice is cooking prepare your scrambled tofu and set to the side once ready._
 
-_In the same pan add 2 tbsp of oil and on a high heat start frying the veg apart from the peas with the garlic powder. Season the veg with some salt and pepper. You may find you need to add more oil to fry the veg. When the veg is nearly ready add in your peas and cook for a couple of minutes._
+_In the same pan add 2 tbsp of oil and on a high heat start frying the veg with the garlic powder. You will add the peas later. As you frying the veg, season with some salt and pepper. You may find you need to add more oil to fry the veg. When the veg is nearly ready add in your peas and cook for a couple of minutes._
 
 ![](/content/images/img_20200723_182050.jpg)
 
