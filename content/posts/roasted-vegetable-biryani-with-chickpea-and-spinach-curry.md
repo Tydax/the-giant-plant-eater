@@ -5,8 +5,6 @@ title: Roasted Vegetable Biryani with Chickpea and Spinach Curry
 author: Graham
 
 ---
-> **Roasted Vegetable Biryani with Chickpea and Spinach Curry**
-
 _My first part time job was as a kitchen porter in an Indian restaurant and this was a favourite curry of mine when working there. Biryani is a fantastic sharing dish and you can easily adjust the quantity to make a smaller amount. The rice dish requires a little time to prepare and cook but it is worth the wait. It gives gentle warmth from the spices which contrast the sharpness from the lemon juice._
 
 _Serves 4- 6_
