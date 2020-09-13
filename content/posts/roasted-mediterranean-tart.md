@@ -5,7 +5,7 @@ title: Roasted Mediterranean Tart
 author: Graham
 
 ---
-_This is one of the first dishes I made at the start of Lockdown. I was determined at the time to make sure there was no waste left from the food in the house. There was some ready rolled puff pastry in the fridge that needed to be used up along with some veggies. It became the inspiration for the following dish. It has a base of Ajvar, made from roasted aubergine and red peppers. The tart then has delicate slices of vegetable are placed on top before baking in the oven._ 
+_This is one of the first dishes I made at the start of Lockdown. I was determined at the time to make sure there was no waste left from the food in the house. There was some ready rolled puff pastry in the fridge that needed to be used up along with some veggies. It became the inspiration for the following dish. It has a base of Ajvar, made from roasted aubergine and red peppers. The tart then has delicate slices of vegetable are placed on top before baking in the oven._
 
 **_Serves 2_**
 
@@ -57,4 +57,4 @@ _The tarts can be served warm with a mixed green salad._
 
 **_Different Toppings_**
 
-_You can add roasted carrots, sweet potatoes or red onion on top of the tart and play about with the seasoning. It would be easy to add some chilli powder, some thyme or rosemary to the tart._
+_You can add roasted carrots, sweet potatoes or red onion on top of the tart and play about with the seasoning. It would be easy to add some chilli powder, thyme or rosemary to the tart._
