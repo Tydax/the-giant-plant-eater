@@ -5,11 +5,11 @@ title: Veggie Haggis Wellington
 author: Graham
 
 ---
-_This dish is great for a special occasion or as an alternative Sunday roast. It requires just a few ingredients and a little time to prepare. The two main ingredients are ready rolled puff pastry and veggie haggis. These shop bought items combined with mushrooms, spinach and some seasoning make a wonderful Wellington. It is relatively easy to pick up chilled veggie haggis and most shop bought pastry is plant-based._ 
+_This dish is great for a special occasion or as an alternative Sunday roast. It requires just a few ingredients and a little time to prepare. The two main ingredients are ready rolled puff pastry and veggie haggis. These shop bought items combined with mushrooms, spinach and some seasoning make a wonderful Wellington. It is relatively easy to pick up chilled veggie haggis and most shop bought pastry is plant-based._
 
 ![](/content/images/img_20200401_210948_956.jpg)
 
-_Serves 4 - 6_ 
+_Serves 4 - 6_
 
 _Preparation: 20 minutes_
 
@@ -37,9 +37,9 @@ _Plant- based milk for brushing the pastry_
 
 **_Method:_**
 
-_Pre-heat your oven to 190 degrees c or gas mark 5. Then gently break up your veggie haggis into a microwaveable container. Heat the haggis for 3 minutes on a high power and leave to the side. This will help to mould the haggis for the Wellington. if you don't have a microwave, you can still form the haggis for the dish._ 
+_Pre-heat your oven to 190 degrees c or gas mark 5. Then gently break up your veggie haggis into a microwaveable container. Heat the haggis for 3 minutes on a high power and leave to the side. This will help to mould the haggis for the Wellington. if you don't have a microwave, you can still form the haggis for the dish without cooking it first._ 
 
-_Meanwhile in a heavy based frying pan, heat the oil and add in the mushrooms and garlic. Fry the mushrooms for a few minutes, then add the margarine. Cook for a few more minutes, then add in the spinach. When the spinach has wilted and the mushrooms are cooked, turn off the heat and leave to cool. Season the mixture well with salt and pepper._ 
+_Meanwhile in a heavy based frying pan, heat the oil and add in the mushrooms and garlic. Fry the mushrooms for a few minutes, then add the margarine. Cook for a few more minutes, then add in the spinach. When the spinach has wilted and the mushrooms are cooked, turn off the heat and leave to cool. Season the mixture well with salt and pepper._
 
 _Next, take the pastry and lay on a flat surface. It is important that everything has cooled before making the Wellington. First, place some of the cooled mushroom and spinach mixture on the pastry in the middle. Then take the haggis and form into a into a domed shape. This sits on the mushroom and spinach mixture. The rest of the mixture is then placed over the haggis._
 
