@@ -53,7 +53,7 @@ _1. Drain and rinse the jackfruit, hand shred it and place in a bowl. Meanwhile 
 
 _2. Brown the mushrooms on a medium heat in the pan and leave to the side._
 
-_3. Add tbsp of oil and sauté the onions, celery, garlics and carrots. Remove them and set to the side._
+_3. Add tbsp of oil and sauté the onions, celery, garlic and carrots. Remove them and set to the side._
 
 ![](/content/images/saute-jack.jpg)
 
