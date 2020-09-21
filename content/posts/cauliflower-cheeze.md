@@ -61,4 +61,6 @@ _Assemble into an oven proof dish and place in the hot oven for about 30 minutes
 
 _You can mix up the dish with some broccoli florets or adding some breadcrumbs or cashew parmesan on top. There are different ways to create a vegan cheeze sauce from using cashews to making a classic roux and adding plant-based milk with some nutritional yeast._
 
-![](/content/images/img_20200921_163505.jpg)
+Below, I have served cauliflower with broccoli cheeze as a side for a nut roast. 
+
+![](/content/images/roast-dinner.jpg)
