@@ -9,6 +9,8 @@ _This is a fabulous retro shared party dish. It can be served as a starter or as
 
 _The basis of this dish involves cashews, potatoes, and nutritional yeast. To this you add some vegan white wine. Many supermarkets have clear labelling on their own wine which will help you chose a suitable vegan bottle._
 
+![](/content/images/fb_img_1603473343802.jpg)
+
 **_Preparation: 15 minutes_**
 
 **_Cooking: 30 minutes_**
@@ -49,7 +51,7 @@ _Cooked baby potatoes_
 
 _Roasted sweet potatoes_
 
-_Roasted veg such as courgette and peppers_
+_Roasted veg such as courgette, peppers and caulifower florets_ 
 
 _Cubes of bread_
 
