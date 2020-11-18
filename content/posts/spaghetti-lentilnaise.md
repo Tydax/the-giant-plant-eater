@@ -64,3 +64,7 @@ _Check the lentilnaise for seasoning and add the butter to stir to help create a
 **_A Little Extra_**
 
 _You can add some vegan parm to the dish at the end or a glass of red wine at the start of cooking. The green lentils can be substituted for red. They need less cooking time as they soften and absorb the liquid quicker._
+
+_On the side, you can serve a little salad or some seasonal sauteed veg._ 
+
+![](/content/images/img_20201117_191228_507.jpg)
