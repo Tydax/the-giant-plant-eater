@@ -5,7 +5,7 @@ title: 'Leftover Nut Roast Hot Sandwich '
 author: Graham
 
 ---
-_My vision of sandwiches has been transformed by an establishment in Edinburgh called Abli’s. They do amazing sandwiches made with focaccia bread and always have an imaginative plant-based option. They have influenced this sandwich which uses leftover nut roast. The contents of the fridge can be a great inspiration and it would be easy to adapt this big sandwich._
+_My vision of sandwiches has been transformed by an establishment in Edinburgh called Abli’s. It is tucked away in Leith and is a gem of a gourmet cafe. They do amazing sandwiches made with focaccia bread and always have an imaginative plant-based option. They have influenced this sandwich which uses leftover nut roast. The contents of the fridge can be a great inspiration and it would be easy to adapt this big sandwich._
 
 ![](/content/images/img_20201228_142858_880.jpg)
 
@@ -53,8 +53,8 @@ _On the bottom half put the warm gravy then a few of the sprouts and tomatoes. P
 
 _On the top layer, smother with vegan mayo before sandwiching your layers together. Cut in half and your sandwich is ready to be served._
 
-_I swapped the sprouts for some cabbage for the next creation._  
+_I swapped the sprouts for some cabbage for the next creation._
 
-![](/content/images/img_20201228_142858_862.jpg)_And a little Siracha mayo for the final version on some classic white sourdough._ 
+![](/content/images/img_20201228_142858_862.jpg)_And a little Siracha mayo for the final version on some classic white sourdough._
 
 ![](/content/images/img_20201230_145308_435.jpg)
