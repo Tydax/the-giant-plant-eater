@@ -1,7 +1,7 @@
 ---
 date: 2021-02-20T13:58:04Z
 hero_image: "/content/images/img_20210219_210219_110.jpg"
-title: 'Cauliflower, Pea and Coconut Curry '
+title: 'Cauliflower, Pea, and Coconut Curry '
 author: Graham
 
 ---
