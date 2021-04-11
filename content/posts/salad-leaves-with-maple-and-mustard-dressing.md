@@ -5,7 +5,7 @@ title: Salad Leaves with Maple and Mustard Dressing
 author: Graham
 
 ---
-_This salad and dressing are easily made and works as a starter, side or with the addition of some plant-based chicken makes a delicious lunch or dinner._
+_This salad and dressing are easily made and works as a starter, side or with the addition of some plant-based chicken makes a delicious lunch or dinner._ 
 
 _I generally use different types of gem lettuce, cos, or romaine lettuce. Unlike bags of mixed leaves, they last longer, and you can take of the amounts of leaves you need to use at the time._
 
