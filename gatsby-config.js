@@ -48,7 +48,8 @@ module.exports = {
     {
       resolve: "gatsby-plugin-sharp", 
       options: {
-        defaultQuality: 75
+        defaultQuality: 75,
+        failOnError: false
       }
     },
     `gatsby-transformer-sharp`,
